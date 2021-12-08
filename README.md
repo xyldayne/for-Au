@@ -1,5 +1,5 @@
 <html>
-<h1>Hi gold hahahahahahahaha</h1>
+<h1>Hi gold</h1>
   <body>
     <p>This is weird. And siguro you're also weirded out about this. Gagi, jusko, kahuruya gid ni. Kag sure ko ma-include ni sya sa hall of fame sang mga kahihiyan kag regrets ko sa buhay HAHAHAHAHH.</p>
     <p>Anyways, isiling ko gyapon para ma-release ko na ni sya kag mawala na.</p>
@@ -14,5 +14,3 @@
     <p>Pero seryoso, ego boost nyo man kapag ay mag confess diba, so unta aton-aton lang ni, HAHAHAHAH. labyu.</p>
     <p>Happy new year goldie, ingat.</p>
     <p>-x</p>
-</body>
-</html>
