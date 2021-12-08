@@ -11,6 +11,6 @@
     <p>So naturing s'ya na joke na lang. Bakit kasi friendly mo masyado no? HAHAHAHAHAHAH pero don't worry, nami na sya nga trait, sala ko lang gid nga nagustuhan ta ka. char.</p>
     <p>So, I'm sending this to you para mareject na kag mawala ni nga feelings kay makadaot friendship. </p>
     <p>Lastly, pag nabal-an ko na may nakabalo sini other than you sasapakin kita. joke </p>
-    <p>Pero seryoso, ego boost nyo man kapag ay mag confess diba, so unta aton-aton lang ni, HAHAHAHAH. labyu.</p>
+    <p>Pero seryoso, ego boost nyo man kapag may mag confess diba, so unta aton-aton lang ni, HAHAHAHAH. labyu.</p>
     <p>Happy new year goldie, ingat.</p>
     <p>-x</p>
