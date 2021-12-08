@@ -1,3 +1,4 @@
+theme: jekyll-theme-merlot
 # to Au
 <html>
 <h1>Hi gold hahahahahahahaha</h1>
